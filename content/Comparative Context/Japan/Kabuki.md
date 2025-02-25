@@ -1,0 +1,5 @@
+[[Edo Period]]
+
+**Kabuki** (歌舞伎, かぶき) is a classical form of [Japanese theatre](https://en.wikipedia.org/wiki/Theatre_of_Japan "Theatre of Japan"), mixing dramatic performance with [traditional dance](https://en.wikipedia.org/wiki/Japanese_traditional_dance "Japanese traditional dance"). Kabuki theatre is known for its heavily stylised performances, its glamorous, highly decorated costumes, and for the elaborate _[kumadori](https://en.wikipedia.org/wiki/Kumadori "Kumadori")_ [make-up](https://en.wikipedia.org/wiki/Make-up "Make-up") worn by some of its performers.
+
+Kabuki is thought to have originated in the early [Edo period](https://en.wikipedia.org/wiki/Edo_period "Edo period"), when the art's founder, [Izumo no Okuni](https://en.wikipedia.org/wiki/Izumo_no_Okuni "Izumo no Okuni"), formed a female dance troupe that performed dances and light sketches in [Kyoto](https://en.wikipedia.org/wiki/Kyoto "Kyoto"). The art form later developed into its present all-male theatrical form after women were banned from performing in kabuki theatre in 1629. Kabuki developed throughout the late 17th century and reached its zenith in the mid-18th century.

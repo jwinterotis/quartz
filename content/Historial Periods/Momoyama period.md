@@ -1,0 +1,1 @@
+The Momoyama period (==1573–1603==) was a time of great change in Japan, from civil war to peace, and from medieval to modern. It was also a time of flourishing arts and culture

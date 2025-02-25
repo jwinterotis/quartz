@@ -1,0 +1,3 @@
+Josef Muller-Brockmann was a Swiss graphic designer who constructed modular grids of horizontal and vertical lines, and used them as a structure to regularise and align the elements together.
+
+Swiss design is synonymous with Helvetica. Helvetica is a typeface that is endlessly useful for everything from signage, web pages and logos, but is also great tradition of Swiss design. What distinguished Swiss design was the use of asymmetric layouts with text aligned flush- left and ragged-right. In addition to this, the use of photographs were more common than illustrations, and had a mathematically grid to determine the placement of all the elements.

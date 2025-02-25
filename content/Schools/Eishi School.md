@@ -1,0 +1,2 @@
+[[Ukiyo-e]]
+The Eishi school is ==a school of [[Ukiyo-e]] artists, also known as the Hosoda school==. Eishi was a prominent artist in the school, known for his elegant woodblock prints of beautiful women.

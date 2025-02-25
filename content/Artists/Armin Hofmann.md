@@ -1,0 +1,1 @@
+Armin Hofmann was a Swiss graphic designer. He was one of the most prominent individuals in Swiss design. He began his career in 1947 as a teacher at the Allgemeine Gewerbeschule Basel School of Art and Crafts at the age of twenty-six

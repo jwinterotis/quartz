@@ -1,0 +1,1 @@
+he Dutch Golden Age was a period in the history of the Netherlands, roughly spanning the era from 1588 to 1672, in which Dutch trade, science, and art and the Dutch military were among the most acclaimed in the world. The first section is characterized by the Eighty Years' War, which ended in 1648.

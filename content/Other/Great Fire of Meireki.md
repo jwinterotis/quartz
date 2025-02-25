@@ -1,0 +1,1 @@
+The Great Fire of Meireki (明暦の大火, Meireki no taika), also known as the Great Furisode Fire, destroyed 60–70% of Edo (now Tokyo), the then de facto capital city of Japan, on 2 March 1657,[1] the third year of the Meireki Era. The fire lasted for three days and, in combination with a severe blizzard that quickly followed, is estimated to have killed over 100,000 people.[2]

@@ -1,0 +1,1 @@
+During the Edo period (1603-1868), ==Kyoto was a center of culture and traditional arts==, while [[Edo]](present-day Tokyo) was the political center of Japan
